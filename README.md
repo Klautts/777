@@ -1,2 +1,2 @@
-Vlad Razin<br>
+Vlad Razin
 https://www.codecademy.com/users/Klautts/achievements
